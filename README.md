@@ -10,4 +10,4 @@ Fun Facts:
 - I love Corinthians
 - I don't like tea
 - Aizen is my favorite anime caracter
-- Hobbies: videogame, anime, build things
+- Hobbies: guitar, anime, build things
