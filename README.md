@@ -1,5 +1,6 @@
 ## Hi there 👋
 `IT Technical High School Student`
+
 My name is Rafael Palmiere, I am 17 years old, 
 
 and I am studying Information Technology at the technical high school level. 
